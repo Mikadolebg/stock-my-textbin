@@ -7,11 +7,11 @@
 Ce message s'applique dans le cadre de mon **projet de minimalisme digital**, projet qui vise à me concentrer plus efficacement sur l'essentiel, commençons..
 
 ### Votre message n'est pas **important** ?
-Je consulte mes messages WhatsApp **une fois par jour** de **xxhxx** à **xxhxx**.
+Je consulte mes messages WhatsApp **une fois par jour** de **18h00** à **18h30**.
 
 
 ### Votre message est **important** mais ne suscite **aucune urgence\*** ?  
-Je consulte mes messages WhatsApp **une fois par jour** de **xxhxx** à **xxhxx**.
+Je consulte mes messages WhatsApp **une fois par jour** de **18h00** à **18h30**.
 
 
 ### Votre message est **important** et **urgent\*** ?  
