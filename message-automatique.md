@@ -1,7 +1,8 @@
-**Je suis indisponible pour le moment.**
+**Je suis indisponible pour le moment ? Comment me joindre ?**
 
+# Voici ma nouvelle politique et les façons de me joindre : 
 
-Ce message s'applique dans le cadre de mon **projet de minimalisme digital**, projet qui vise à me concentrer plus efficacement sur l'essentiel.
+Ce message s'applique dans le cadre de mon **projet de minimalisme digital**, projet qui vise à me concentrer plus efficacement sur l'essentiel, commençons..
 
 ### Votre message n'est pas **important** ?
 Je consulte mes messages WhatsApp **une fois par jour** de **xxhxx** à **xxhxx**.
