@@ -1,3 +1,5 @@
+⬇️⬇️⬇️ LIRE ICI ⬇️⬇️⬇️
+
 **Je suis indisponible pour le moment ? Comment me joindre ?**
 
 # Voici ma nouvelle politique et les façons de me joindre : 
